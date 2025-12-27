@@ -22,7 +22,7 @@ Supervising professors and institutions are acknowledged where relevant.
 
 ### **Trends in Spousal Violence and Female Labour Force Participation in India**  
 *2021 — Supervised by Prof. S.K. Ritadhi (Econometrics)*  
-[PDF](https://drive.google.com/file/d/16yIPaIYdQiZTYqfIbGc-GHeQVvOZ25Qn/view?usp=drive_link)
+[PDF](https://drive.google.com/file/d/1VoFebSbzWC7o8Y4OwFKlni5YQ7gYiHZP/view?usp=sharing)
 
 ---
 
@@ -34,7 +34,7 @@ Supervising professors and institutions are acknowledged where relevant.
 
 ### **Perspectives of Inequality: A Piketty–Boo Study**  
 *2020 — Supervised by Prof. Arvind Subramanian*  
-[PDF](https://drive.google.com/file/d/1ubR-cTAyAUd61NuUMMZ3yP4ERdK0CHCW/view?usp=drive_link)
+[PDF](https://drive.google.com/file/d/1rFMC7CKBjSlXmVHyfyAyyKlv_tn-vNen/view?usp=sharing)
 
 ---
 
