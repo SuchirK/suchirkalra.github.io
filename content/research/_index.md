@@ -32,8 +32,8 @@ Supervising professors and institutions are acknowledged where relevant.
 
 ---
 
-### **Perspectives of Inequality: A Piketty–Boo Study**  
-*2020 — Supervised by Prof. Arvind Subramanian*  
+### **Inequality as Ideology and Institution: Reading Annawadi through Boo and Piketty**  
+*2020 / Updated in 2022— Supervised by Prof. Arvind Subramanian*  
 [PDF](https://drive.google.com/file/d/1rFMC7CKBjSlXmVHyfyAyyKlv_tn-vNen/view?usp=sharing)
 
 ---
