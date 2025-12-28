@@ -52,7 +52,7 @@ Supervising professors and institutions are acknowledged where relevant.
 
 ### **AI Art and Design Perceptions: A Sociological, Philosophical, Economics and Technical Study**  
 *2020 — Supervised by Prof. Debayan Gupta*  
-[PDF](https://drive.google.com/file/d/1f5LX3YRKTiYnAYu6K6KE51wASgX2DJj6/view?usp=drive_link)
+[PDF](https://drive.google.com/file/d/1jlBe5F57p4x7B135sg-c3-NyDuAM8HtD/view?usp=drive_link)
 
 ---
 
