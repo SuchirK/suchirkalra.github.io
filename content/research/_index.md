@@ -46,7 +46,7 @@ Supervising professors and institutions are acknowledged where relevant.
 
 ### **Corporate vs. Consumer: A Case on How a Home Appliance Company Sued Its Consumer**  
 *2023 — Supervised by Dr. Lantz Fleming Miller*  
-[PDF](https://drive.google.com/file/d/1M11F0k30TnKQ6A0I4LqTu-IhUvsIQDAA/view?usp=drive_link)
+[PDF](https://drive.google.com/file/d/1JDkONk2AJa9aJFhFqd3XUkck0LeNwqO2/view?usp=sharing)
 
 ---
 
